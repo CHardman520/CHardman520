@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CHardman520
-- 👀 I’m interested in Programming, and Data Analytics. But I'm currently a blockchain and fintech consultant by trade. 
+- 👀 I’m interested in Programming, and Data Analytics. But I'm currently a blockchain and fintech accounting/tax consultant by trade. 
 - 🌱 I’m currently learning the basics.
 - 💞️ I’m looking to collaborate on interesting projects to increase my skill. Preferably in the blockchain and clean energy field. 
 - 📫 How to reach me via discord thecryptokeeper.tax 
